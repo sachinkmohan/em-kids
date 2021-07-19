@@ -1,4 +1,4 @@
-## Welcome to EM Kids
+## Welcome to EM Kids 👦👧
 
 
 ### Lesson Plan
