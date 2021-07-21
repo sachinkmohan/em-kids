@@ -6,6 +6,7 @@
 [Lesson Plan](https://www.eslkidstuff.com/esl-kids-lesson-plans.html) 🥳
 
 [Color lesson Plan](https://www.eslkidstuff.com/lesson-plans/pdf/colors-lesson-plan.pdf)
+
 [Colors in Malayalam](https://www.learnentry.com/english-malayalam/vocabulary/color-in-malayalam/)
 
 Downloads
